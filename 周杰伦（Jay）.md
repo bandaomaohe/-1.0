@@ -1,5 +1,6 @@
 
 # *周杰伦（Jay）*
+![页面1(1)](https://user-images.githubusercontent.com/119741470/205497783-a3513719-43e6-49b2-8b7e-6baef5edf8c5.png)
 
 <img src="E:\桌面2.0\src=http___inews.gtimg.com_newsapp_bt_0_12333878881_1000.jpg&refer=http___inews.gtimg.webp" style="zoom:25%;" />
 
