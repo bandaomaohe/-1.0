@@ -1,3 +1,4 @@
+![d6ca7bcb0a46f21f7ecd1e5ff9246b600d33aec5](https://user-images.githubusercontent.com/119741470/205484068-9d9ba93f-467d-447c-bb2f-fb021f99bb63.jpg)
 # *周杰伦（Jay）*
 
 <img src="E:\桌面2.0\src=http___inews.gtimg.com_newsapp_bt_0_12333878881_1000.jpg&refer=http___inews.gtimg.webp" style="zoom:25%;" />
